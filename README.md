@@ -1,4 +1,4 @@
-i ak pwned
+Do not give up on your dreams. Keep sleeping.
 
 <!---
 NTSP3/NTSP3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
